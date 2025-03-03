@@ -1,1 +1,0 @@
-# Quraner Fariwala Project
