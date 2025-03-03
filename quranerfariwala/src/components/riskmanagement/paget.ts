@@ -1,0 +1,1 @@
+// Risk Management Page for Quraner Fariwala
